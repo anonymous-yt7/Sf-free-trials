@@ -1,1 +1,0 @@
-# Sf-free-trials
